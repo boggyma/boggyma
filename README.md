@@ -14,7 +14,7 @@ I also completed Cloud Security training with Google Cloud under the MMC (Mentor
 
 With a background in Microbiology and Project Management, I bring strong analytical thinking, attention to detail, and a structured approach to problem-solving in cybersecurity.
 
-🚀 I am currently building hands-on experience in Security Operations and actively seeking **Cybersecurity internships and entry-level roles in the UK**.
+🚀 I am currently building hands-on experience in Security Operations and actively seeking **Cybersecurity internships and entry-level opportunities
 
 ---
 

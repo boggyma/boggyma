@@ -81,7 +81,7 @@ With a background in Microbiology and Project Management, I bring strong analyti
 ## 🌍 Let's Connect
 
 - 💼 LinkedIn: https://www.linkedin.com/in/chioma-lilian/  
-- 📫 Open to internships, graduate roles, and cybersecurity opportunities in the UK  
+- 📫 Open to internships, graduate roles, and cybersecurity opportunities   
 
 ---
 

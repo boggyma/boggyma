@@ -1,6 +1,6 @@
 # Hi there 👋, I'm Chioma Lilian
 
-🔐 Cybersecurity Analyst (ISC2 CC) | Aspiring SOC Analyst | Problem Solver  
+🔐 Cybersecurity Analyst | Aspiring SOC Analyst | Problem Solver  
 
 ---
 
